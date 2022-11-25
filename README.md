@@ -31,6 +31,8 @@ você tem benefícios incríveis e exclusivos
 
 https://bit.ly/2YCCvC0
 👆👆👆
-e tenha acesso a links sem publicidade nas descriçoes dos videos 
+
+Sendo Membro do canal voce tenha acesso a links 
+sem publicidade nas descriçoes dos videos 
 
 ➖➖➖➖➖➖➖➖➖
