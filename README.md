@@ -19,9 +19,6 @@ MOSTRADOS NO VIDEO ACIMA
 
 ➖➖➖➖➖➖➖➖➖
 
-
-➖➖➖➖➖➖➖➖➖
-
 Ajude nosso trabalho sendo um membro do canal ,
  
 além de links fáceis de baixar e diretos 
