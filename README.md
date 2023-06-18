@@ -10,12 +10,12 @@ video:
 MOSTRADOS NO VIDEO ACIMA 
 
 👇👇
+Monster +  NXE visual - Build 06.2023
 
-🔗 Link MEGA: https://bit.ly/3VlHsdx
+🔗 Link direto : https://tinyurl.com/b46sasvw
 
-🔗 Link Mediafire : https://bit.ly/3tWXY8i
+🔗 Link Mediafire : https://tinyurl.com/y9hzhstj
 
-🔗 Link direto : https://bit.ly/3VknWya
 
 ➖➖➖➖➖➖➖➖➖
 
